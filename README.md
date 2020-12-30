@@ -5,6 +5,8 @@ The related presentation is also posted here as well.
 
 Abstract: 
 
+How Income & Age Affect Political Opinions
+
 Political opinions and leanings of different Americans can be shaped by a multitude of different factors, both visible and psychological, of which many may seem intangible and immeasurable. 
 Income and age are two of the most easily measured and concrete variables that could potentially inform an American’s political leanings and more subtle opinions. 
 
